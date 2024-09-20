@@ -2,11 +2,11 @@
  
  Aqui vou compartilhar meus projetos!
 
-Meu nome é "Giovana Soares" :he
+Meu nome é "Giovana Soares" 💋
 
 Estou na primeiro ano do Ensino Médio 
 
-Estudo no colegio CCM JOÃOXIII
+Estudo no colegio CCM JOÃOXIII🏫
 
 Tenho 16 anos
 
